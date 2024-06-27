@@ -1,4 +1,4 @@
-# zingtvs.cc
+# zing tv | zingtv | tv zintg
 
 [Sao Băng|Sao Băng|Zing TV](https://zingtvs.cc/movie-zing-tv/sao-bang)    
 [Ai Chết Giơ Tay: Kẻ Độc Hành|Ai Chết Giơ Tay: Kẻ Độc Hành|Zing TV](https://zingtvs.cc/movie-zing-tv/ai-chet-gio-tay-ke-doc-hanh)    
